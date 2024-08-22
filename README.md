@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @BASOhacks
+- 👋 Hi, I’m Héritier BASOMINGERA 
 - 👀 I’m interested in cyber security and ethical hacking 
 - 🌱 I’m currently learning at Petit seminaire saint Léon 
 - 💞️ I’m looking to collaborate on Cyber security and ethical hacking 
